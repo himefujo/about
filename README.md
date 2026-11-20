@@ -1,1 +1,1 @@
-
+<center><img src="https://i.postimg.cc/dtZjFqbW/picmix-com-2840204.gif"> HELLO! my name is <b><i>mari</i></b> <img src="https://i.postimg.cc/jSwdPm8B/IMG-3841.gif"> i go by she❤︎her <b>but i dont mind any!</b> um wip #awkward</center>
